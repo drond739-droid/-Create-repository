@@ -1,5 +1,5 @@
 # Заметки
 
-## Мой магазин на Etsy
+## Накладка для Manix 2
 
-- HiPolyDesigns: https://www.etsy.com/shop/HiPolyDesigns
+- HiPolyDesigns на Etsy: https://www.etsy.com/shop/HiPolyDesigns
